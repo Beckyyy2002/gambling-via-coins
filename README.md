@@ -1,1 +1,1 @@
-# gambling-via-coins
+# play to earn
